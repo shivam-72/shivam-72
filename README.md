@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shivam-72
 - 👀 I’m interested in ... Making projects. 
 - 🌱 I’m currently learning ... Smoothly.
-- 💞️ I’m looking to collaborate on ...innovative projects. 
+- 💞️ I’m looking to collaborate on ...Innovative projects. 
 - 📫 How to reach me ...Email- shivamsinha7277@gmail.com
 
 <!---
